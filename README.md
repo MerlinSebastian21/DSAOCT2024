@@ -17,7 +17,7 @@ DSA OCT 2024 Participants
 11.
 12.
 13.
-14.
+14. Merlin Sebastian
 15.
 16.
 17. Niranjana krishna BJ
